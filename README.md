@@ -1,4 +1,4 @@
-# ethicalinsight.
+# MyProfileHub📚👩🏻‍💻
 # 👋 Hi, I'm Shambhavi!
 
 ## 💼 About Me
